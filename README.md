@@ -1,2 +1,0 @@
-# abrarnitk.github.io
-profile
